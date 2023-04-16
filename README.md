@@ -1,0 +1,2 @@
+# Jersycoin
+Public awareness
